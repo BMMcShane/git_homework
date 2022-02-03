@@ -3,3 +3,5 @@ Personal accountability will be very important based on what I have seen so far.
 
 Planning ahead on when to work on my projects.
 Being more outspoken when struggling.
+
+My Sister, bless her.
